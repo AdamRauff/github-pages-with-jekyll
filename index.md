@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to Adam's Blog
 
-I'm glad you are here. I plan to talk about ...
+Here I will talk about pressing issues in a Graduate student's financial life
